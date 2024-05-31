@@ -1,4 +1,5 @@
-![initial](https://github.com/FullAccel/.github/assets/81468180/934cd88f-0f42-4da0-89ea-8bf78fe437f5)
+<img width="948" alt="image" src="https://github.com/FullAccel/.github/assets/74056843/8e6e3fa8-3a22-4618-b8e4-a06e6ff9ca53">
+
 
 <!--
 
